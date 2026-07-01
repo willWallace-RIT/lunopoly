@@ -6,11 +6,23 @@ but the idea is to explore from basic communication a larger of set pictographs/
 (and make them yourself as you think of then)
 
 a dedicated player would be wise to allow yourself the following signs
+
+
 -6 (charades to signify 6 words)
+
+
 -no talk or lips are sealed (avoid hush or expanded ASL)
+
+
 -yes
+
+
 -no
+
+
 -movie
+
+
 -wait (asl is solid but not as known by a lot of people)
 
 
