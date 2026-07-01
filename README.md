@@ -8,22 +8,22 @@ but the idea is to explore from basic communication a larger of set pictographs/
 a dedicated player would be wise to allow yourself the following signs
 
 
--6 (charades to signify 6 words)
+- 6 (charades to signify 6 words)
 
 
--no talk or lips are sealed (avoid hush or expanded ASL)
+- no talk or lips are sealed (avoid hush or expanded ASL)
 
 
--yes
+- yes
 
 
--no
+- no
 
 
--movie
+- movie
 
 
--wait (asl is solid but not as known by a lot of people)
+- wait (asl is solid but not as known by a lot of people)
 
 
 the starter set of gifs should be:
