@@ -3,7 +3,9 @@ meditatative neditative art arg, lunopoly
 
 this is open for modification in terms of base rules
 but the idea is to explore from basic communication a larger of set pictographs/gifs
-(and make them yourself as you think of then)
+(and make them yourself as you think of them)
+
+((it also probably helps with interpersonal communication that is more internally expressive))
 
 a dedicated player would be wise to allow yourself the following signs
 
