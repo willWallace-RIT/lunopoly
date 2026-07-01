@@ -27,6 +27,8 @@ a dedicated player would be wise to allow yourself the following signs
 
 - wait (asl is solid but not as known by a lot of people)
 
+- if you say wait to pull out a tablet pause and look back to gesture and give a person enought time
+for them to register you are not pulling out heat. in a pack, you are better off setting the pack on the ground first.
 
 the starter set of gifs should be:
 probably the same
